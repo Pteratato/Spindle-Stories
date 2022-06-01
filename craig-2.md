@@ -8,7 +8,7 @@ My name is Craig Doyle and I don’t know what I’m doing here.
 The email read:
 
 
-[Header logo of a grasshopper playing trumpet]
+[Header of a grasshopper playing trumpet]
 
 **Hello, Friend!**
 
@@ -36,9 +36,6 @@ And I then wrote this response:
 
 And within half an hour, Colt Herzwin sent this back:
 
-
-[Calypso Header]
-
 **Hi, Friend Craig!**
 
 **Thanks for ur interest in calypso! Ur not gonna regret this, man! Ur inner self is just waiting 4 a little help and ur gonna shine like the king u were meant 2 be. Meet me Fri-Sun at the midtown subway between 8pm-10pm @ Gate 10, can’t miss us.**
@@ -46,8 +43,8 @@ And within half an hour, Colt Herzwin sent this back:
 **Its the first step to seizing control of ur life.**
 
 **Stop being a zombie, Friend**
-**-Colt**
 
+**-Colt**
 
 And today is Friday, so I’m here now at the subway at 9:17pm. I’m here because I really do feel like a zombie, and zombies can’t write ground-breaking novels, and maybe this is the sign from God, and maybe if I wait until tomorrow I won’t come.
 
@@ -136,13 +133,3 @@ I glance towards the table of Calypso Green Juice and I notice something strange
 I hesitate; Madison is right, it is a bit unsafe, and did I just witness a theft? I look around, but no one seems to notice anything, and Colt Herzwin is still dancing around with his trumpet. I cast a glance at the tall man from Boston, but he’s staring at his phone now, bobbing his head slightly in time to the music.
 
 “Dad?” Madison presses, and I don’t know what to say.
-
-What should Craig do about the thief?
-
-1) Madison is right; it’s time to go home.
-
-2) Keep Madison on the phone but follow the thief – maybe it’s a misunderstanding.
-
-3) Try to get Colt’s attention; even if it interrupts the performance, he’d want to know.
-
-4) Alert the tall man from Boston, surely he can think of something.
