@@ -1,8 +1,9 @@
 # *Craig!*
-##### by KC Kahre
----
+### *03: The Calypso Caper*
+
+
 &nbsp;
-#### Chapter 3
+
 
 In chapter three, something changes in Craig Doyle, Printing Press Shift Manager at the *LCP*.
 
